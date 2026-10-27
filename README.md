@@ -1,2 +1,2 @@
-# soto-ayam-kudus-enak
+# soto-sopran-alto
 Kalau pada nanya kenapa namanya soto ayam kudus? basically karena keliatan estetik aja
